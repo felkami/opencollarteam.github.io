@@ -105,6 +105,10 @@ Slave Auction & Matching Service
 [http://maps.secondlife.com/secondlife/Mostly%20Beatrice/111/220/67](http://maps.secondlife.com/secondlife/Mostly%20Beatrice/111/220/67)  
 **Advisory:** The Vendor is about 20m west of the landing point around a corner.  
 
+Kika Yongho, Strict Venus Femdom SSC   
+Femdom Community.  Public area open to all.   
+[http://maps.secondlife.com/secondlife/Serena%20Amore%20Isle/120/163/31](http://maps.secondlife.com/secondlife/Serena%20Amore%20Isle/120/163/31)   
+
 KlewTea Rhapsody, Sprockets & Whip  
 Female Focused BDSM Community, Multiple Roleplay Settings  
 [http://maps.secondlife.com/secondlife/Sprockets/179/36/3506](http://maps.secondlife.com/secondlife/Sprockets/179/36/3506)  
@@ -133,7 +137,7 @@ Arab Themed Slave Auction & Training
 
 Morris Mixmaster, Sensual Camping  
 Club & Nude Beach  
-[http://maps.secondlife.com/secondlife/Prohibition/71/213/21](http://maps.secondlife.com/secondlife/Prohibition/71/213/21)  
+[http://maps.secondlife.com/secondlife/Prana/202/163/38](http://maps.secondlife.com/secondlife/Prana/202/163/38)  
 
 Nerk Nexen, M&M Dungeon  
 Playground, Chat, Dungeon Roleplay  
